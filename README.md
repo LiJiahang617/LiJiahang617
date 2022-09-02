@@ -2,7 +2,8 @@
 - 👀 I’m interested in playing basketball
 - 🌱 I’m currently learning deeep learning
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me 1471173088@qq.com
+- 📫 How to reach me lijiahang0617@gmail.com
+- phone +86 17684366140
 
 <!---
 LiJiahang617/LiJiahang617 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
