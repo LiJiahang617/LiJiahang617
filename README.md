@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LiJiahang617
 - 👀 I’m interested in playing basketball
 - 🌱 I’m currently learning deeep learning
-- 💞️ I’m looking to collaborate on coding
+- 💞️ I’m looking to nothing.
 - 📫 How to reach me lijiahang0617@gmail.com
 - phone +86 17684366140
 
